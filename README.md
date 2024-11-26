@@ -26,4 +26,4 @@ Este trabajo de campo nos permitió reflexionar sobre la influencia de la tecnol
 Agradecimientos
 Agradecemos a quienes nos apoyaron en la realización de este proyecto y a las personas que colaboraron con sus testimonios e información relevante para nuestra investigación.
 
-Si necesitas que ajuste algo más o incluya detalles adicionales, házmelo saber.
+
